@@ -1,1 +1,1 @@
-Hallo dies ist das IT-Projekt für die Klassed 10c von Egehan Ay und Anna Jordan
+Hallo dies ist das IT-Projekt fuer die Klassed 10c von Egehan Ay und Anna Jordan
